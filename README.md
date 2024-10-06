@@ -1,3 +1,3 @@
 # About me 👋
 
-- 📫 How to reach me: katarsik@yandex.kz, http://linkedin.com/in/lachugin
+- 📫 How to reach me: [mail](katarsik@yandex.kz), [Linkedin](http://linkedin.com/in/lachugin)
